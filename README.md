@@ -9,6 +9,6 @@ I am Amar Joshi, an independent technology consultant; I am an engineer at heart
 - 💼 I’m open to freelancing - my strengths are Cloud, Networks, Program Management, Automation
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a crime / legal drama fan. I also enjoy reading and am into running and biking.
--------------------------------------------------------------------------------------------------
+-----------------------------------------------
 
 
